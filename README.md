@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @hrasheedyahoo.com
+- 👋 Hi, I’m Habeeb Rasheed
+- 
 - 👀 I’m interested digital marketing, around social and environmental justice issues.
 I have years of experience with consultative sales. I am looking for ways to leverage my experience with sales and interest in marketing, and social justice, into cleaver money making marketing opportunities. 
  
